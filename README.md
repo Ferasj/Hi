@@ -1,2 +1,2 @@
 # Hi
-A new repository
+This looks very interesting! don't you agree?
